@@ -1,1 +1,0 @@
-# Magic-Square-Challenge-by-EVA-Pharma
